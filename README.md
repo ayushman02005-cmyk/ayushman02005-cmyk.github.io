@@ -1,1 +1,0 @@
-# ayushman02005-cmyk.github.io
